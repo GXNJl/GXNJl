@@ -11,4 +11,4 @@
 <p align="center">
 
 
- <sub><sup>man of great tastes; lover of all ships</sup></sub> 
+ <sub>man of great tastes; lover of all ships</sub> 
