@@ -13,4 +13,4 @@
 
  <sub>man of great tastes; lover of all ships</sub> 
  
- <sub>ow, tf2, cod & dl pilled rn</sub> 
+ <sub>ow, tf2, dl & genji pilled rn</sub> 
