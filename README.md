@@ -12,5 +12,6 @@
 
 
  <sub>man of great tastes; lover of all ships</sub> 
- 
+  <sub>#emzuki #genzuki #yeehanmre #supriken</sub> 
+  
  <sub>ow, tf2, dl & genji pilled rn</sub> 
