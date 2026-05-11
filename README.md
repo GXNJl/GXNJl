@@ -1,7 +1,7 @@
 <div align="center">
 
  
- ✙  ˚̣̣̣  ◞  ![](https://komarev.com/ghpvc/?username=gxnji&label=⭒+views+++&color=7BA5BF)       ♪
+ 𓈒 ⠀ᜒ  ![](https://komarev.com/ghpvc/?username=gxnji&label=⭒+views+++&color=7BA5BF)  ˳   ♪♪ྀི⠀⠀
 
  </h4>
 
@@ -11,8 +11,6 @@
 <p align="center">
 
 
- <sub>man of great tastes; lover of all ships</sub> 
+ <sub>𝓼ō stιck to me̲, lᎥkᥱ [𝒸ar𐓟meƖ](https://open.spotify.com/track/1QrbZhFYlViXd60g130vw1?si=FscRd236Rl6FVPvNKWBiaQ)</sub> 
  
   <sub>#emzuki #genzuki #yeehanmre #spuriken</sub> 
-  
- <sub>ow, tf2, dl & genji pilled rn</sub> 
